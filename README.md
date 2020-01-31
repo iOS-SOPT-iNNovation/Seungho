@@ -4,9 +4,8 @@
 
 #### 1주차!
 
->  https://lidium.tistory.com/6 <br>
+>  https://lidium.tistory.com/6
 
-> 주제 : Device 대응, 코드 간결화 등
 
 
 
