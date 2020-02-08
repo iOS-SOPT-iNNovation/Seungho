@@ -8,4 +8,9 @@
 
 
 
+#### 2주차!
+
+>  https://lidium.tistory.com/7
+
+
 
