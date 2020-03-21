@@ -29,6 +29,10 @@
 
 >  https://lidium.tistory.com/11
 
+#### 8주차!
+
+>  https://lidium.tistory.com/12
+
 
 
 
