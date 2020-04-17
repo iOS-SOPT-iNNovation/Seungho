@@ -47,7 +47,7 @@
 
 #### 12주차!
 
->  https://lidium.tistory.com/16
+>  https://lidium.tistory.com/17
 
 
 
