@@ -106,3 +106,7 @@
 ####  28주차!
 
 >  https://lidium.tistory.com/37
+
+####  29주차!
+
+>  https://lidium.tistory.com/38
