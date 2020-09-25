@@ -110,3 +110,8 @@
 ####  29주차!
 
 >  https://lidium.tistory.com/38
+
+####  30주차!🎉🎉🎉🎉🎉🎉 
+
+>  https://lidium.tistory.com/39
+
